@@ -17,4 +17,4 @@
 
 在SEO结构上，页面标题、描述、正文内容都精准嵌入了“日本AV免费”“无码”“高清”等关键词，提升在搜索引擎中的匹配度。同时，通过内链推荐、每日更新、在线播放等功能增强用户行为数据，如点击率、停留时长和跳出率，从而稳固在搜索结果中的排名。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet8 ）</span>
